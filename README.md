@@ -8,7 +8,7 @@
 * Перевод статьи ["Как стать скилловым сабом"](/transl/Как_стать_скилловым_сабом.md) от [sleepingirl](https://www.patreon.com/sleepingirl)
 * Перевод карточек ["Гипноз для новичков"](/images/Гипноз_для_новичков.md) от [Blooftube Bloof](https://www.youtube.com/channel/UCh1Bo9_7K0_PMpETnvZG5sQ) 
 * Перевод статьи ["Эротическая природа гипноза"](/transl/Эротическая_природа_гипноза.md) с сайта [hypnotic dreams](https://www.hypnoticdreams.com/)
-* Перевод поста ["Признаки абьюза в гипнозе"] из [тамблера](https://www.tumblr.com/rainytigerdinosaur/677119119477325824/signs-of-hypnotic-abuse?source=share) 
+* Перевод поста ["Признаки абьюза в гипнозе"](/transl/абьюз.md) из [тамблера](https://www.tumblr.com/rainytigerdinosaur/677119119477325824/signs-of-hypnotic-abuse?source=share) 
 
 
 
